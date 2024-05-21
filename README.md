@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Tortu
+- 👀 I’m interested in VideoGames and Anime
+- 🌱 I’m currently learning Programing
+- 💞️ I’m looking to collaborate on Programs
+- 📫 How to reach me @Tortugaalpan in Twt/X
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm Aphanthastic
